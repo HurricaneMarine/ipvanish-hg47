@@ -1,4 +1,4 @@
-
+Get the ultimate IPVanish connector with advanced IPVanish Connector | custom-configurations + L2TP-support. Featuring custom-configurations and L2TP-support, it's the best choice
 
 
 
